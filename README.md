@@ -8,4 +8,4 @@
 - 
 - More about SAYNA: https://www.sayna.io/<br>
 - 
---> To the pleasureof exchanging and/or collaborating together <--
+--> To the pleasure of exchanging and/or collaborating together <--
